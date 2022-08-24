@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rupindersingh13
+- 👀 I’m interested in learning new things from my seniors...
+- 🌱 I’m currently learning full stack development...
+- 📫 How to reach me --> rupindersingh5719@gmail.com
+
+
